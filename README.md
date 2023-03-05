@@ -1,2 +1,4 @@
 # LINHUA
 MY REPOSITORY
+I LOVE ☀️!;
+I LOVE ☕, 🍕, and 🍡;
